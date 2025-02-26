@@ -9,8 +9,9 @@
 
 > Since Ep 22
 
-LooksToBeCount = 118
+LooksToBeCount = 126
 AppearsToBeCount = 16
+IPullAPotato = 1
 
 ## Old Notes
 

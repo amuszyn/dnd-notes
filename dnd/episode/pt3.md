@@ -445,3 +445,223 @@ The guards who interviewed us are named Steve, Buschemi
 > As the session comes to an end we decide to talk with Locke's contact Blake.
 > We also will look to do some recon of the northern camp
 > that is if Blake doesn't know anything about it.
+
+## Episode 36: On The Trail
+
+Two arcane groups are present in Dravenhold:
+The Mages Guild, The Arcanum
+
+> Question, which mage based society is afiliated with the govt
+
+Noxx was an interrogator (torturer) for the Red Balance.
+
+The librarian Janet - short deep gnome.
+
+Bit is lead to the arcane section by a construct made of old book pieces.
+
+Bit goes looking for mage society books, preferably about Benyon.
+
+We find a book dated a few years ago.
+I flip through and find the familar name from Benyon.
+
+Two full pages about the spellbinder society.
+
+The Spellbinder Society is regarded as a newer organization, founded around 120-130 years ago.
+Annotation reads; exact dates and data may vary.
+Another piece says there are multiple higher up orgs,
+like the Oracalcum Exchange that have been in business,
+however none say anything about meeting the memebers \
+of the spellbinder society.
+
+The leader of the Spellbinder Society, Eldric Moonbrooke,
+has been the leader for the duration of the organization.
+The founder who was unknown, for a year, passed it on to him.
+No one knows if the founder is a part of it.
+
+In recent events, rumor has it they are looking,
+to expand their influence across oceans.
+
+During this time Locke and Niel go off to talk to Blake.
+
+Locke discusses the imporance of the event that his father is having him go to.
+
+They meet up with Garen. Locke is disguised as Gizmo.
+
+Locke follows Garen through the bushes, he seems to be following some markings.
+Neil doesn't trust that he knows the way, however Garen seems confident.
+Garen begins lifting up moss off the ground.
+Locke and Niel are unsure what he is even looking for.
+A crossbow bolt comes flying and lands between Garen's fingers.
+A chuckle follows calling Garen skiddish.
+A man in his 40s pops out and looks disgustingly good for his age.
+Similar to Tom Brady, however this is Blake Blackfoot.
+
+He is wearing thief guild garb,
+that is of the highest quality and very fitted to his figure.
+Blake was unaware of Garen bringing guests.
+
+Neil complements his crossbow, that he got off a dead man apparently.
+Neil then shows him the slingshot that he is proud of.
+Garen reveals a really old wooden hatch under a loose piece of moss.
+As they climb down it goes from being dirt to worked stone.
+
+At the bottom there is a 8x8 meter room with a mattress.
+It looks like someone has been held up here.
+Presumably Blake and Garen.
+Blake removes his gloves as he sits down revealing his blood stained hands.
+
+Blake questions why Locke has come at this time, despite all that has happened.
+Locke claims it is to get info to save Shane Flynn.
+Blake thinks they killed him, they were trying to kill Garen as well.
+Blake just so happens to be looking for some people to carry out a contract for the accord.
+
+Apparently Blake has some info on Locke's father.
+This is what he is holding over him to get him to do the contract.
+He wants him to retrieve an item for him.
+The Ebon Echo; it's a gemstone, or crystal, hard to miss.
+They likely have it in some sort of container.
+He doesn't spill too much about what it does.
+Blake claims it would be better in the brew's hands then the balance.
+The encampment to the North is a rumor, the only place Blake knows is in the city.
+Blake has no clue where Shane is.
+
+Blake plays some thought games, wondering why would the balance go norht?
+The only reason blake can think of to go North is to hide something scary.
+Blake seems like a rather manipulative man.
+Neil draws a map leading to the hidden encampment of Blake during his time there.
+
+Noxx, Bit, and Camilla met by Doug's Churro stand.
+Doug is a MASSIVE man with a chefs hat and apron that says 'kiss the doug'.
+
+> The curros are 3ft long.
+
+We start heading to the Mage guild. Noxx wife frequents magical places of interest.
+As we walk into the guild, Noxx see's the visage of Quill walking out.
+Tyvon Marrick is Quill's actual name.
+He is the spy master information broker guy for the Red Balance.
+He is a pale gray color elf, who is super gaunt (thin). Looks malnourished.
+
+A Tabaxi in purple robes comes up. Vaylen Solara.
+Maser Rogar (Rogar) Thull - drow elf
+
+As I approach he is chewing some newer member out.
+'How many times have you done this same thing over and over'
+Apparently the youngin wasn't doing a great job.
+I need to pass an entry trial to join.
+He pulls out a ledger, with multiple sticky notes on each page.
+
+My trial is at 4 am, alone 3 days from now, the 11th of Monaros.
+
+I attempt to link to him and notice it is blocked.
+A ring on his finger makes a notable glare as I try.
+Rogar is an archmage.
+
+While we talk to the archmage, Noxx is waiting outside looking for the spymaster.
+As Tyvon walks out, Noxx stops him looking to talk with him.
+Noxx instantly asks about his son. Tyvon says that isn't his department.
+Tyvon insures that Noxx knows where to go if he wants answers.
+Noxx claims that they are not willing to talk with him.
+Tyvon refers to him as 'Ratjaw's' mutt.
+
+As we leave the mage's guild we meet up with Noxx, Neil, and Locke.
+
+> Pedofiles head's explode.
+> Neil could seduce people to death.
+
+As we regroup, Locke says that Blake wants some gemstone.
+
+Noxx left Dorn Ratjaw Eskel, the lead interrogator.
+Took him off the streets, raised him and Noxx was the right hand man.
+Ratjaw promised him that when he had a kid he could leave the guild no worries.
+This wasn't the case and when he left they took his son.
+
+We as a group are looking to figure out how to get more info.
+The Red Balance seems to be the place to infliltrate.
+Noxx could go back and not be in danger.
+We could also have some others join the guild.
+
+There are some clients that go directly to The Scale. The leader of the Red Balance.
+We don't know his real name, he is only ever referred to as The Scale.
+The higest rank Noxx has met is The Red Hand.
+
+Whenever things are needed, Goldfingers is the one to contact.
+Valen Dask (fight-pit leader) would also be a contact.
+
+Noxx knows the recruiter Sarah Mourn.
+
+We use the stone phone earpiece to contact Ozen.
+
+Bit -> Are you coming to the ball, if so can we meet before?
+Ozen -> The teleportation circle is almost finished, I will be there for the night of the ball and no longer.
+
+Ozen -> I'm looking for a security detail. In Oscars absense.
+Bit -> Certainly interested, we will be held up at the Last Stop.
+
+Noxx tries to set up Doug to fake a robbery of Neil.
+His only stipulation is that somone cover his stand.
+Everyone stairs at Camilla.
+
+I walk into the Red Balance guild hall.
+Multiple round tables, haggered members with tattoos.
+Some are visually branded, there is a bar here.
+A couple of heads turn then go back to their business.
+
+I walk up to the welcome desk.
+We make rather gay sexual inuendos regarding swords and wood.
+I go to sit at the bar. Many eyes flash my way when I do so.
+The welcome desk guy did warn me that the memebers can be a bit abrasive.
+
+Noxx enters as Bit goes down the stairs to the bar.
+He goes upstairs to meet with Sarah Mourn's office.
+
+Neil has an extravagant plan to try and get into the balance.
+He goes down to the bar because there was no one there to receive him.
+
+Locke and Camilla are doing some recon outside while this is all happening.
+Locke is looking for some accessable windows.
+Which they have on all four faces of the structure.
+
+Camilla tries to climb up to the second floor using invisibility to conceal herself.
+
+> Pedofile explosion, does fireball damage in 30ft radius.
+
+Camilla fails to climb up and falls down. (natural 1 athletics check)
+
+Looks like a half human golaith bartender woman.
+I tell her to surprise me with a drink.
+She grabs a mostly clear drink that looks like water which cost 3g pieces.
+
+Neil approaches the bar. Most look and scoff.
+
+Bit banters a bit with Neil as he holds the act of not knowing who Bit is.
+
+Noxx makes it upstairs unbothered. He knows of the rooms that are present there.
+There are 12 or so rooms there as well as the personal chambers of Sarah.
+There is a guard talking to Sarah as he approaches her chambers.
+The guard was the welcom center guy that talked with Bit, name unknown at this time.
+Sarah invites Noxx in as the welcome center guy leaves.
+Inside Sarah's room there is a long desk with many ledgers and documents.
+Noxx questions Sarah about his son. Offers to join back in place of his son's freedom.
+
+Sarah talks about this recruiting being a front.
+She claims to not have the time to deal with the front and work in the shadows.
+She seems to not have any knowing of them taking his son.
+Noxx repeats his offer of rejoining for his son's freedom.
+Sarah ensures that might not be possible.
+Apparently the Red Balance doesn't want Noxx back.
+Ratjaw is very upset and would harm Noxx in an instant if he were present.
+
+Noxx fails to convince Sarah to help him with his son.
+On his way out he says that his offer still stands.
+While he walks out Sarah mentions quickly, he's out of town tonight as she shuts the door.
+
+Camilla is picking a lock, as it clicks and the trap door opens, there is a rope connected and something snaps off.
+A small burst of red light appears like a blown fuse.
+Like an alerted trap.
+
+> [!info] Last things ep 36
+> Left off with Noxx leaving Sarah's room
+> Bit and Neil are at the bar
+> Bit is awaiting the welcome center guy, expecting to be talked to.
+> Not sure what Neil is hoping for.
+> Locke and Camilla are doing fuck all outside.

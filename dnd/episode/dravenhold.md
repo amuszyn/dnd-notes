@@ -3,8 +3,8 @@
 T1 Interests:
 
 - The Molten Anvil (Blacksmith)
-  - Has +1 of each martial weapon
-  - Has +1 of each armor type (non-cloth)
+  - Has +1 of each martial weapon: 1600g
+  - Has +1 of each armor type (non-cloth): 1600g
   - Revanent Stiletto: 2000g
     - +1, always returns to the users hand, on d20 1d6 necrotic for 1min
   - Searing Brand: 2000g

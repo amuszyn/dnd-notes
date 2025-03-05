@@ -665,3 +665,119 @@ Like an alerted trap.
 > Bit is awaiting the welcome center guy, expecting to be talked to.
 > Not sure what Neil is hoping for.
 > Locke and Camilla are doing fuck all outside.
+
+## Episode 37: Those filthy brown fingers
+
+The bartender's name is Regina.
+
+I tip the bartender 1 silver as I leave to follow the help desk guy.
+
+They don't have any openings, I talk a little bit to the guy who says the reason isn't due to lack of work.
+The reason he thinks is due to some organizational changes at the higher levels.
+
+Bit and Noxx walk over to the alleyway where Locke and Camilla.
+Locke re-opens the trap door, stealthily.
+The floor is wooden, and the walls are green.
+
+> The Dewey-decimal system is a cannon organizational system.
+
+The walls are lined with filing cabinets in the dewey-decimal system.
+There is purple colored ash on the documentes.
+Locke casts detect magic and finds out that the filing cabinets are resinating with magic.
+
+We all go down into the room, Bit and Locke get to investigating.
+On the wooden shelf we find scripture written in elvish.
+Likely due to the enchantment process. We feel the dust and it's akin to sandpaper.
+There is a book with blank pages, the book is tearable which is meant for removing the pages.
+Locke does midevil forensics and runs a pencil over it but finds no past writing.
+There are no doors that we could find.
+
+Bit notices that the shelves are enchanted, I am able to determine that there is some pairing that needs to happen.
+
+We give up and exit the cellar.
+Bit is disguised as the red balance help desk guy.
+
+Neil is approached by a stocky man with small tusks despite having simiar features to a human.
+He seems to have no intentions except interact with Neil.
+
+Neil tells him that he was robbed, and had his wallet and dog stolen.
+He questions Neil's being at the red balance, with how young he is.
+The man wants Neil for a job, due to his small stature.
+The man points over the hearth, larger figures with the human flesh and small tusks.
+He invites Neil to have a seat with them to talk about the plan.
+The man's introduces one of his companions and his name is Gremis.
+The other companions are Grimice, and Gromice.
+The last one's name is Gordon, he is the one that came over to talk to Neil at the bar.
+Gremis seems to be the leader by vibes.
+He gets to questioning Neil's story and he reiterates to the man.
+Gremis invites Neil to a more private place to discuss the plan.
+He want's Neil to steal something for them that is key to the plan.
+Neil will get paid a fifth of the payment coming out to be 600 - 700 gold pieces.
+Neil asks to be inaugriated into the guild as well, however Gremis says sternly that this is not guild work.
+Gremis says he will consider it based on his performance during this job.
+
+Neil cast's sending to Bit:
+I might have an in, take care of Kei and stuff.
+
+Locke and Noxx try and piggy back their way up to the second floor of the building.
+Locke jams his finger and curses a little louder than intended.
+He does recover due to his athleticism, by grabbing onto another gutter.
+This one does not give in like the other luckily.
+He checks for traps lining the window on the second story.
+He sees some sort of suction mechanism that could alarm if he were to open the window.
+Locke attempts to disarm the trap, he fails and his tools are jammed.
+Inside the room, Locke see's the outline of a humaniod figure.
+
+Camilla infiltrates while invisible. We await and play foosball during our downtime.
+
+The plan is for Locke and Bit to go in.
+Bit disguised as the help desk guy Locke being invisible.
+Noxx will look to distract the front desk guy so we don't have a double situation.
+Noxx will also have Sebastion during this time.
+
+Noxx fails to remove the guy from the front counter.
+He ends up at the bar downstairs, Neil is leaving the bar area.
+
+Locke ends up in the closet with Camilla, and references 7 minutes in heaven.
+
+Bit walks in disguised as Clyde, the desk man knows him.
+Clyde is a greatly respected person, however he is not high up in the chain of command.
+
+> Clyde is the Red Balance member the group killed with the help of Emissary.
+
+Cole is the name of the desk man.
+
+The new Tabaxi barman's name is Ridoc.
+Apparently Ridoc loves fucking with Cole.
+
+We get the door in the closet open.
+It reveals a 9ft staircase leading underground.
+Noxx has some information about it.
+Interrogation chamber was first door to the left.
+
+Bit goes and retrieves Noxx, Cole gets farmed and probably fears Clyde even more.
+
+> Clyde's job was more of a jack of all trades.
+> He then went into primarily bounty work.
+
+Locke finds a storage room with three different sacks filled with dust?
+Three colors, dijon mustard, metallic, and orange dust.
+He puts them in three separate vials.
+
+We enter the torture chamber, we see a chained figure, and empty shackles with fresh blood.
+In the corner is someone flicking a key.
+
+Flynn has orange hair, lengthly dude normally.
+Looks a bit like Shaggy from Scooby Doo.
+Has a baby face.
+
+> Executioner Roll: Needs to be invisible, succeed a stealth check. +5 to hit +5 to damage
+
+Locke blows the lady that is rummaging's, head off.
+
+> [!info] End of Ep 37
+> Locke executioner style shot someone in the head and left her on 1 hp.
+> We rolled for initiative and thats where it ended.
+> We did want to get into the room at the end of the hall.
+> There was muffled screaming coming from there.
+> We are still looking for Noxx's kid and Locke's friend Flynn.

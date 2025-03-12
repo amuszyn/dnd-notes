@@ -781,3 +781,67 @@ Locke blows the lady that is rummaging's, head off.
 > We did want to get into the room at the end of the hall.
 > There was muffled screaming coming from there.
 > We are still looking for Noxx's kid and Locke's friend Flynn.
+
+## Episode 38: What lies in the basement
+
+> The 5 second rule: For 5 seconds after a creature dies they are not considered an object.
+
+The episode starts with combat, inside the room we picked is a large person.
+
+As we wipe everyone out, Camilla misses a lot of hits on a retreating enemy.
+He makes it to the main floor and alerts the whole red balance.
+
+We prep to fight the balance as they are coming into the basement.
+
+Bit looks through the stash, finds the Ebon's Echo.
+A black crystal that looks enchanted.
+It's contained in a bottle and seems to defy gravity.
+
+I find some excellent boots sitting in the corner of one of the closet.
+I now have `fancy boots`
+
+We exit the red balance and are instantly met with Dravenguard pointing weapons at us.
+
+We are being detained by the Demon of Duskar and his guards.
+
+Camilla being invisible she gets away and meets up with Neil at the bar.
+
+We get escorted to a prison and are all three held in a cell.
+Bit talks to Cole for a bit during the walk to the prison.
+Maybe he made a little bit of an alliance who knows.
+Cole does know that Bit was one of the people in the basement.
+Whether or not that will matter is unknown.
+I connect to a guard who put us in our cell.
+He claims to be the
+Foosball Champion, who thinks Bit is a deity.
+Tells him that he is dealing with their case.
+Bit talks to him about his problems, and he tells him that he known as the Traveler of Benyon.
+The foosball champion says hes under a great deal of stress with what happened at the red balance hq.
+
+Bit also casts `sending` to contact Locke's father and tells him that we are in prison, asking for his assistance.
+
+> I need to talk to him and be like wait.. foosball champion is that you.
+> The traveler of Benyon told me about you
+> he said you are pivital to what happens next, he said your decision could change the course of history.
+
+Camilla and Neil go to the Ironjaw residence to talk with Locke's father.
+
+We are led into a room to give our account of what happened.
+We are accompanied by Shane Flynn and the other guy we found in the torture basement.
+Locke(Creed) gives the recollection of events.
+
+The Demon of Duskar tells the scribe to stop scribing.
+He tells us that the guild is required to be in the city.
+Meaning the red balance.
+
+> Maybe I should try starting a cult of the traveler
+> Where I pop into random people's heads on the street and talk to them like a deity.
+> Maybe then we could pose Bit as the messiah who can invoke the traveler.
+
+Locke's father is one of the only men the Demon has any respect for.
+He then says that his father is making a mistake.
+Locke asks if he will be killed, Demon says don't just save him from the outcome, save me from having to execute one.
+
+> Need Locke to explain that a bit more since I don't quite follow.
+
+General Ferrick requests Duskar's presence as this happens.

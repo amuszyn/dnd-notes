@@ -13,6 +13,8 @@ LooksToBeCount = 141
 AppearsToBeCount = 20
 IPullAPotato = 1
 
+Camilla needs to feed on the 22nd of Manaros.
+
 ## Old Notes
 
 I have become a rather good cook during my time sailing.

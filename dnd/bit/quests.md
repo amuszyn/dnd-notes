@@ -64,6 +64,10 @@ I think Ozen offered a bonus reward, can't find it in notes tho.
 The Red Balance has taken Shane, we aren't sure if he is alive or dead.
 We could help look for Shane.
 
+We found Shane Flynn at the Red Balance's HQ.
+We burned their HQ to the ground and got arrested for it.
+Still need to go back to Blake with the Ebon Echo.
+
 ### Brickshire
 
 ### General Objectives

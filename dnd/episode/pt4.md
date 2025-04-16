@@ -537,3 +537,74 @@ Neil is contacted by Elana Indigo.
 She's back from her trip, she needs him to go to Stonemarsh.
 She discovered a lot.
 She will be in Dravenhold in a few hours.
+
+## Episode 42: From another world
+
+Current Date: 10th of Manaros.
+
+We make our way to the last stop.
+
+As we walk in the business is booming, far more than normal.
+Doug is selling churros, bringing in a mass of people.
+
+Noxx explains the deal where he kills the scale and gets his son back.
+His wife doesn't know what the hell to say.
+
+Ozen understands Locke's anger.
+Ferrick is being held on the fourth sub terranian floor.
+Fisk is also here, he owes Ferrick one.
+It seems like we are about to infiltrate and break him out.
+Ozen can no longer support the Daein army.
+The king is losing the support of the generals.
+Ozen is propsing a swift strike.
+Free Ferrick before the execution 15 days from now.
+The 25th of Manaros.
+Ozen can't join us since she has Stonemarsh to look after.
+
+Gorefest ends up at our door.
+He is not a changeling.
+His name is actually Desmond Freljord, and he has a plan to break into the prison.
+He wants to save his uncle Brodan.
+
+Ozen proposes we do the break within a day or two.
+
+Bit learns that refined oracalcum does not blow unless tampered with.
+
+We forge a letter from the King.
+Bit disguises as Duskar. We get Ferrick from the cell.
+
+Anyone who is struck with the Demon of Duskar's blade their magic is negated.
+
+Current Plan:
+
+Bit as duskar. Everyone else as themselves.
+Duskar gives letter to the warden.
+Here to bring Creed & Farlander in.
+While the warden is getting the letter.
+Camilla sneaks into the warden's office.
+The main group goes down to 4th floor.
+The prison break ensues.
+We drop disguises and escape.
+
+Warden Eternal.
+
+Indigo has been studying the iPod.
+Has been with groups within Tellius and Valeria.
+She thinks it is capable of interdimentional travel.
+That's what the i stands for.
+She built a charging dock for it using oracalcum.
+.001 % of its output = 5V 1A
+
+Detroit Rock City is on the iPod.
+Killer Queen.
+
+We get back to the bar. Matilda is talking with Norac.
+
+Noxx finds the Red Hand at the bar.
+Tiefling has a proper name: Mannimarco
+Malric is a human, one missing eye.
+She thinks he's under the influence of a vile creature.
+> Probably the fateweaver, seems to have his fingers everywhere.
+
+Norac said that the farlanders are interested in a missing item.
+It happens to be on this side of the veil.

@@ -19,22 +19,22 @@ T1 Interests:
 - Oaken Ironworks (Wood products)
 - The Worn Wardrobe (Clothing)
 - Arcane Trinket and Dodads(lowGrade magical items)
-  - Mimics Bane Rod: 380g
+  - Mimics Bane Rod: 380g (Purchased)
   - Whisper Coin: 200g
     - Record a 6s message when flipped repeat
   - The Everlit Candle: 40g
     - Small candle that never melts or burn down
   - The Lockpick of second chances: 150g
     - When broken casts knock, and then crumbles
-  - Tongue tied knot: 150g
+  - Tongue tied knot: 100g (Purchased: Noxx)
     - once per day, when cast target makes a wis saving, or a stutter
   - Potion of false life: 30g
     - 1d4 temp hp
-  - Gustcaller fan: 180g
+  - Gustcaller fan: 180g (Purchased: Noxx)
     - when waved, can cast gust castip
-  - Coin of returning: 80g
+  - Coin of returning: 80g (Purchased: Bit)
     - when flipped returns to the users pocket
-  - Potion of healing: 120g (Heal)
+  - Potion of healing: 120g (Heal) (Purchased 2x: Noxx)
   - Potion of Phantom Step
   - Potion of Verdent Vitatlity (HoT)
   - Potion of Cat's Grace (Adv on Dex&Acrobatics)

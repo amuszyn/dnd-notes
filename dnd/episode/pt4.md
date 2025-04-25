@@ -608,3 +608,165 @@ She thinks he's under the influence of a vile creature.
 
 Norac said that the farlanders are interested in a missing item.
 It happens to be on this side of the veil.
+
+## Episode 43: Spellbound
+
+Date: Tyros, 11th of Manaros
+
+We wake up within the last stop.
+
+Neil forces us to the general store for oil flasks and 100 ft of rope.
+He grabs 7 lbs`trickle dust` for 175 gold.
+Noxx funds 100g of the purchase.
+
+Bit purchases the `coin of returning` for 80g.
+Each time you flip it it returns to the users pocket.
+If I keep the coin in my line of sight, it does not disappear.
+
+Locke pulls out the cube and examines it.
+8 degrees Celsius this may be important who knows.
+Locke investigates the cube.
+He breaks out the tools to try and fuck with it.
+
+Camilla and Bit go to the mages guild and make their way to the library.
+We start scribing books for the guild for 10g a day.
+There is a table full of translation texts.
+Bit got a book on the history of the yo-yo.
+Camilla on mushrooms.
+Bit finds a book on the language of the Sangri Elves.
+This is the language that was written in the basement,
+of the Red Balance cellar that no one could figure out.
+
+Neil is getting paid 10g to help out around the bar for the day.
+
+Locke is still messing around with the cube.
+He gets a good bump and feels like progress has been made.
+A pin clicks and the whole cube falls open in his lap.
+What is revealed looks like an atom with metal rings.
+Gyroscopic in nature and at the epicenter there is a bright light.
+This item barely floats above his hand, and all the hair on his arm stands.
+Locke recognizes a familiar sensation, as oracalcum is certainly in the device.
+He grabs one of the rings, stopping the device.
+As it comes to a stop, it produces a 10 digit number.
+99543 12133.
+The number is explained to resemble coordinates.
+However we don't have a map to determine the coordinates.
+
+> I am assuming that the device points to something.
+> Would love to figure out where the coordinates are.
+
+He tries again to see if it spits out different coordinates.
+It does: 00087 54366 being the coordinates this time.
+Locke puts the device back in the box.
+
+> We don't have to roll to open the box again.
+
+Camilla goes to talk to someone in the mage guild that is also inscribing with us.
+He is managing to do 9 books at one time with his skills.
+
+The yo-yo was made by Arcanist Yosif Yotametie, in 13,498 BE (Before Eternity).
+It was meant to be a military projectile weapon.
+However never caught on, but did catch on with the children.
+He was disgusted of the use of his weapon as a children's toy.
+However an old cache was found and they do exist in Valeria.
+
+We then return to the Last Drop as nightfall crests.
+There are a lot of people coming in for the festivities.
+Matilda comes back from her task of getting quotes to put in a basement for the bar.
+
+Half size wooden: 2500g
+Full size wooden: 4000g
+Half size stone: 3500g
+Full size stone: 5500g
+
+Full size stone gets you the expert goblin crew that will finish the job in 5 days.
+
+> Lead blocks scrying magic.
+
+We begin chatting at a table as Noxx attends to the tavern.
+We exchange our days experiences and Locke explains the gyroscope he found.
+
+Neil is putting forward a great performance knocking peoples socks off.
+
+I approach a half elven man alone at a table after we have a short mental conversation.
+
+Finest elven vintage the valerian vassal wine.
+Eldric is the half elven man in disguised.
+
+He says the name Cache.
+He speaks of it in a reminicing manner.
+I helped build something incredible.
+Apparently we were visionaries.
+
+Do you know how rare you are.
+A survivor. Magic hums with the echo of something.
+Cornerstone of a process that could change everything.
+And yet the memories are scattered arent they.
+Not quite gone but elusive like whispers in the dark.
+Trauma can fray the edges of the mind especially when done by magical means.
+Perhaps it was a mercy.
+
+The town didn't die.. it shifted.
+Something went wrong yes, but wrong isn't always meaningless.
+What happened in Cache was the first step to a brighter stronger future.
+One that needs you.
+He sets something on the table but does not reveal it.
+As he lifts his hand he reveals a familiar piece of octagonal oracalcum he gave the king as tribute.
+He has higher duties now, lots of secrts in his care.
+
+When I'm ready to remember -- just know I cannot undo what has already transpired.
+A man will lose himself trying to correct the past.
+
+Should I ever want to return to a higher purpose, I need only to reach out.
+
+He pulls out a piece of scratch paper and writes something on it and gives it to me.
+An encantation written in elvish: Zerith Varr
+I know translates to: To find and seek
+
+You need not tangle yourself in the mistakes of your crew.
+
+Everything in my body feels dark, I feel like the memories are right there.
+Information is certainly being withheld.
+
+We make it to bed that night, Camilla and Locke a bit drunk.
+Everyone is beat as it was a long celebratory night.
+
+Doug and Noxx have a heart to heart.
+Noxx accepts Doug into the Last Stop family.
+Doug sheds genuine tears of happiness.
+
+As we sleep Noxx hears a low hum from our room.
+Neil is laying on the ground eyes wide open emitting a purple light cast to the ceiling.
+
+Neil lays in unexplainable bliss.
+He sees his own hands as he sits up.
+His hands are translucent in this place.
+He has no idea where he is.
+A beautiful night sky is present however the floor is white like hes on a cloud.
+Two hands are felt caressing down his arms.
+They are warm, and feel safe for some reason.
+A woman's voice with intense reverb says 'little spark'
+'Child of breath and tide. Do you hear it?'
+'The sea beyond all seas stirs once more'
+'Something ancient uncoils beyond the ...'
+
+The sky above begins to shift to a pink/purple hue.
+'The skies will tremble the veil will crack'
+'And from the wound int he world the deep will bleed.'
+'A quake shall come not of stone or flame but of memory forgotten'
+'And power unchained, from its tremor the eye will open the sleeper will stir'
+
+The single star turns yellow and opens like an eye, with multiple pupils appearing.
+Each star begins to follow.
+
+'You litte spark, you are both the lock and the key, a whisper in the dark or the roar that answers it'
+
+The hands then lift for a moment.
+A brief flash.
+The gaze of the endless eyes are uncomfortable.
+Then comes a tear in the sky above as a single long tendril reaches out.
+Not at Neil or anything in particular.
+It just seems to endlessly stretch, as if it is trying to grab everything there is.
+
+Another voice sounds as the dream fades:
+Ferrick: 'Life is a storm my young friend'

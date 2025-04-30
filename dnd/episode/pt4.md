@@ -714,6 +714,8 @@ He sets something on the table but does not reveal it.
 As he lifts his hand he reveals a familiar piece of octagonal oracalcum he gave the king as tribute.
 He has higher duties now, lots of secrts in his care.
 
+> Bit obtains a piece of octagonal oracalcum
+
 When I'm ready to remember -- just know I cannot undo what has already transpired.
 A man will lose himself trying to correct the past.
 
@@ -770,3 +772,73 @@ It just seems to endlessly stretch, as if it is trying to grab everything there 
 
 Another voice sounds as the dream fades:
 Ferrick: 'Life is a storm my young friend'
+
+## Episode 44: A Sleeper Stirs
+
+We expedite the day to get to the prison invasion.
+We make it to the shady shack that we are to meet Ozen at.
+
+There are 4 large barrels of gunpowder that are present in the shack.
+Enough to blow the house and then some.
+Sitting in a chair is Elana Indigo messing around with some book.
+She is giddy as she realizes guests have arrived.
+Dezmond is also preparing.
+Ozen and Fisk Gravepool come from the basement and that accounts for everyone involved in the plan.
+
+Ozen obtains enough guard uniforms for all of us.
+As well as the prison schematics.
+
+Ozen was invited to meet with the King and Duskar.
+So that means that we will have no worries about Duskar being at the prison.
+
+Bit as duskar. Everyone else as themselves.
+Duskar gives letter to the warden.
+Here to bring Creed & Farlander in.
+While the warden is getting the letter.
+Camilla sneaks into the warden's office.
+The main group goes down to 4th floor.
+The prison break ensues.
+We drop disguises and escape.
+
+When Camilla flips the coin it will appear in my pocket.
+
+Locke and Bit have +2 AC when within 30 feet of each other.
+
+Camilla finds a mushroom known as Shroomis Boomis.
+Very rare. Only bloom under the moon wake.
+The mushroom acts as a berzerker mushroom.
+When consumed for 1 turn you get IBS, half speed, and disadvantage on everything.
+Then for 5 turns you get an extra attack.
+
+**The Plan Begins**
+Fisk is the first to leave.
+Elena goes to get Locke's brother.
+
+As we make our way down to the first floor.
+Ozen calls: I'm with the king now, Duskar should be here soon.
+
+We drop Neil and Desmond off at the second level.
+They get taken in and we make our way down to the lowest level.
+Locke, Noxx, and Bit disguised as the Demon of Duskar get caught at the anti magic zone.
+
+Bit holds the two guards in place and evaporates them as Noxx and Locke blow the anti-magic zone with a bomb.
+
+Neil starts a break on the second level.
+All this time Camilla has been infiltrating the Warden's office and eventually gets the combination correct.
+Which results in the prison cells opening.
+
+12th of Manaros is their 9/11 type event for Daein.
+
+A battle with Duskar ensues.
+
+Duskar goes every 3 turns.
+
+Bit -> Noxx -> Desmond -> Duskar -> Locke -> Ferrick -> Xavier -> Nick -> Brodan
+
+Noxx takes 41, then 13 points of slashing damage.
+
+As the first round ends.
+Neil beings to zone out..
+He begins to hear something weird. It's just sounds.
+No words. 'Dream with me'.
+A few icicles begin to fall from the celing as the ground begins to shake.

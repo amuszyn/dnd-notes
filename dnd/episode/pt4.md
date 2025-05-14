@@ -842,3 +842,46 @@ Neil beings to zone out..
 He begins to hear something weird. It's just sounds.
 No words. 'Dream with me'.
 A few icicles begin to fall from the celing as the ground begins to shake.
+
+## Episode 45: A Dance with the Demon
+
+We begin on second round of combat.
+Everyone had heard in their mind, a voice.
+Saying: 'Dream with me'.
+
+Bit -> Noxx -> Desmond -> Duskar -> Locke -> Ferrick -> Xavier -> Neil -> Brodan -> Camilla -> Ozen
+
+We feel the ground shake with a new intensity, this vibration went from a murmur to perpetual.
+Feels like a minor earthquake.
+
+Another round goes by and we hear an earsplitting psychic noise:
+Every person takes a minute to recoil from this.
+'Dream'
+And then from the ground a large crack forms in the prison.
+Looks like half the battlefield has a chasm tear into it.
+
+As the ground surfaces, we see a giant crack running across the entire sky.
+A purple sea of endless stars directly over the castle.
+From the cracks, a single giant tendril extends outward.
+As it does the stars become a sickly yellow color.
+They are eyes in the sky, chaos ensues.
+There are beams from the eyes, as it hits someone in the street they hold their head and slam their head into the ground to stop the noise.
+
+> Repaste: Bit -> Noxx -> Desmond -> Duskar -> Locke -> Ferrick -> Xavier -> Neil -> Brodan -> Camilla -> Ozen
+
+Multiple yellow eyes begin to look at the battle.
+They shoot their beams.
+
+> Can walk where a downed person is.
+> 10ft expended to walk thru that space.
+> If they are picked up they are shoved right or left.
+
+> Sebastion can distribute potions.
+> You can take a potion from sebastion for an action.
+> Sebastion can pick up downed persons using a potion assuming they are prone.
+
+We take down The Demon of Duskar.
+
+'When death marches, where will you be' are the last words of Gregor.
+
+The party levels up.

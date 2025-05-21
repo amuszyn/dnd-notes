@@ -885,3 +885,58 @@ We take down The Demon of Duskar.
 'When death marches, where will you be' are the last words of Gregor.
 
 The party levels up.
+
+## Episode 46: A Sleeper Wakes
+
+We take cover from the eye beams.
+
+What is the plan now, Elana is still waiting at the meeting point.
+Fisk is waiting in the city somewhere.
+We are deciding whether to go with Xavery and company to Stonemarsh.
+Or to go North to find Noxx's kid.
+We are certainly going to go north eventually.
+But I'm not sure we know where this place is.
+
+Apparently the only reason the farlanders are here is for a piece of lost cargo.
+We may or may not have this lost cargo.
+
+Neil performed a ritual on Gregor and learned that he was already undead.
+
+As we make our way out of the prison, the city is chaos.
+We see Dravenguard fighting as someone shoots out of their window.
+Laughing as they charge the Dravenguard. Seemingly rabid.
+A yellow light comes from the man's eyes as he pulls himself farther down the Dravenguard's spear.
+From the crack in the sky, three main tenticles much larger than others are surrounding the castle.
+The spire of the castle is twiseted and warped in a way that is impossible.
+Trees are misconfigured and nearby areas are emiting a light.
+This feels like a Chuthulu type of setting.
+
+We find a Valerian soldier.
+We entice him to come with us for now.
+
+We all take 7 points of fire damage, as we teleport.
+We all end up 1 by 1 in a brightly lit chamber.
+Seems to be a recieving room, night sky is normal.
+We are in Elana Indigo's tower in Stonemarsh.
+
+The Valerian soldier's name is Brom (Braum).
+He answers only to the emperor and okiora (idk the spelling).
+
+We did not come to pledge to the king,
+we had come to size up our enemy.
+Squash a bug before it became a problem.
+With that being said we may have a common interest.
+
+Noxx gets Greatsword `The Demon's Cleaver` +4, whenever you hit the target with an even number: Any spells effecting the target are instantly dispelled. Any items on the target will lose their magical effects for 2 turns.
+
+Locke plans to walk to Gizmo's shop.
+Bit plans to go to Kreel's.
+
+We cut Camilla's finger off. As soon as we do she collapses unconscious.
+Neil evaluates her and she is not breathing.
+Neil casts revivify, the spell fails.
+
+Noxx removes the ring from Camilla's finger.
+
+Camilla is revivied as we replace the ring on her finger.
+Neil places it on her left pinky.

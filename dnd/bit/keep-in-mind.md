@@ -9,9 +9,9 @@
 
 > Since Ep 22
 
-LooksToBeCount = 144
+LooksToBeCount = 145
 AppearsToBeCount = 22
-IPullAPotato = 3
+IPullAPotato = 4
 
 Camilla needs to feed on the 22nd of Manaros.
 

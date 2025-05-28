@@ -940,3 +940,27 @@ Noxx removes the ring from Camilla's finger.
 
 Camilla is revivied as we replace the ring on her finger.
 Neil places it on her left pinky.
+
+## Episode 47: The Unknown Road
+
+Ferrick and co are going west to Crimea to get an audience with the Queen.
+Xavery is going to go back to the farlander camp.
+
+The valerian king is coming to stonemarsh to meet with Brom.
+
+Bit heads over to Vander's brothel: The Sticky Place.
+
+Villia Diggum, the wife of the owner.
+Einar Diggum, the owners name.
+
+Bit leaves a letter, for the owner,
+asking if he has any way of getting in contact with the previous owner.
+
+We all end up at Krueger Kreel's place.
+
+I purchase `Amulet of Health` and `Soverign Glue`.
+
+We get a horse and carriage for 700 rental, 200 back on safe return.
+We win the frog race, and carry `Alfred` away.
+
+# Episode 48

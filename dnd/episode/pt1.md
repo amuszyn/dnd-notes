@@ -1,5 +1,3 @@
-file:///Users/amuszynski/Documents/Other/notes/dnd/daein_adventures.md
-
 # 05/14/2024
 
 Started in combat against the hill-giant and 3 gnolls

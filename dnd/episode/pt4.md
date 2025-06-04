@@ -960,7 +960,106 @@ We all end up at Krueger Kreel's place.
 
 I purchase `Amulet of Health` and `Soverign Glue`.
 
-We get a horse and carriage for 700 rental, 200 back on safe return.
+We get a horse and carriage for 700 rental, 500 back on safe return.
 We win the frog race, and carry `Alfred` away.
 
-# Episode 48
+## Episode 48: Familiar Forests
+
+We leave for the last known whereabouts of Waarad Were.
+
+The day is now: 14th of Manaros
+
+As we are traveling I am sitting in the back of the cart.
+I then hear what sounds like; a channeling of magic.
+It's off to the driver side back tire of the cart.
+
+Neil has the memory of what the noise is..
+
+Shembulock, goes out and scouts the noise.
+He sees something that looks really hot.
+
+Neil realizes that he has heard the noise before..
+These are the noises he heard before the opening of the rift, near his home.
+
+Neil's house in the thundercost backed up to a medow that backed up to a cliff.
+Neil explains that this rift happened at his home.
+Neil's mom investigated it for the next three weeks.
+Neil read her notes:
+She thought it was a magical disaster, or a fracture.
+She didn't have much besides it being a magical disturbance.
+He heard a loud bang one day and there was the iPod and a stream of smoke coming off the fracture.
+
+As we walk over to the fissure we hear the pulsing fizzling sounds clearly.
+
+We see about a five foot square in the forest that has this constant ebb of energy.
+Rippling as if it were really hot.
+
+I throw a rock through it, it ends up on the other side.
+We then hear a much lounder sound that startles the ripples.
+
+I throw Alfred...
+
+Noxx standing on the other end, notices something.
+It passes through the threshold of the portal, he makes it half way in and then..
+A flashbang happens, we hear a louder magical boom.
+Noxx sees for a moment, something that could be a hand wrap around the frog.
+Once it rippled the area changed into the crack that Neil is familiar with.
+
+The hand had a yellowy white glow to it.
+Alfred is is more than one place.
+The message Bit attempts to send fails.
+
+Neil sets up the iPod in front of the crack and begins to play.
+It starts with `Detroit Rock City`, and moved on to `Empire of Broken Dreams`.
+
+We are about to send Shembulock through the crack.
+
+We jump into the portal.
+We feel as if we have hightend senses but have no physical form.
+We feel ourselves losing a sense of where we are.
+
+Bit begins to hear a muffled whisper 'you fool', maybe Ky'Mytha
+
+We all begin to hear memorable whispers of characters in our lives.
+
+Locke hears voices of his mother and father.
+Noxx his tavern and Ratjaw.
+Bit hears a tender voice but strangely knowing as my former master gives commands that we are unable to decipher.
+
+All of sudden a warm sensation begins.
+
+Our bodies begin to feel as if they are being moved as if they are in a river.
+A white blinding flash and then absolute darkness.
+Our eyes open, and we look up to see the blue sky.
+Clouds above, trees around. The crack is nowhere to be seen.
+
+Neil casts sending to his mother. Nothing.
+
+I reach out to Ky'Mytha. I make a connection.
+I hear 'your skills are impressive to reach me at such lengths'
+'you have gone somewhere beyone distance'
+
+We need to gather some information to help Ky'Mytha get to us.
+
+We meet a guy on the small path, he doesn't know what a year is.
+He came from stonemarsh. Names Darvey.
+Coin is stamped with Valerian Symbol.
+
+Valeria was the first kingdom, Telius segregated around 3,000 years ago when the veil was created.
+Telius Diggum is the founder.
+
+Bit invades Darvey's mind and converts him to be a deciple of the Traveler.
+
+Fey realm time is 4x slower than normal time.
+
+Neil asks a member of Stonemarsh if there is a temple around.
+Priest Babu is the spirtual leader around here.
+
+Stonemarsh is the largest city around.
+The Capital is around 5 seasons away.
+
+The mayor's name is Keith.
+
+Neil contacts Taterthorn the timeless.
+
+He hears: 'Neil was it, that name tastes familiar''Come on Babu sees all.'
